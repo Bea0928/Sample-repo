@@ -2,3 +2,5 @@
 
 
 kamusta ka aking ka nigga
+
+negrosis
