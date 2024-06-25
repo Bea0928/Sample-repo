@@ -1,6 +1,3 @@
 # Sample-repo
 
-
-kamusta ka aking ka nigga
-
-negrosis
+neggasaurus rex
